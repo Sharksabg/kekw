@@ -1,2 +1,2 @@
 # kekw
-Adolf hitler nie wiedział
+Adolf hitler nie wiedział ale Korwin już tak
